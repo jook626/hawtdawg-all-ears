@@ -1,1 +1,1 @@
-some good tips
+new tips for faq
